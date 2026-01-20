@@ -15,7 +15,7 @@ Soy **Lorenzo Cruz Fernández**. Actualmente estoy cursando un **FP Superior en 
 
 - **FP Superior en DAM**  
   [Ilerna Sevilla]  
-  *(2024 - 2025)*
+  *(2024 - 2026)*
 
 ---
 
